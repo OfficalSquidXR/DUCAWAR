@@ -1,2 +1,2 @@
 # DuckWare.xyz
-skeet
+skeeties
