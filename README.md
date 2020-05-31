@@ -1,3 +1,2 @@
 # DuckWare.xyz
-skeeties
-better then ur dad snorting coke  LMAO
+get good get duckware.xyz and start quaking 
